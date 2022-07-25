@@ -9,6 +9,7 @@ Online stores let people browse through various colors, designs and styles. Howe
 
 
 Selecting The Perfect Style
+
 The first thing to consider when buying a lehenga choli online in the USA is the specific style you want to flaunt. There are various designs of lehenga choli with various intricate handiwork like mirror work, embroidery, or a more traditional Chania Choli.  
 
 
@@ -21,21 +22,25 @@ If you have a curvy figure, try a crop top choli or a long sherwani style one to
 
 
 Selecting The Correct Size
+
 Another important aspect of buying a lehenga choli online in the USA is selecting the correct apparel size. For this, you can take a look at the size chart provided with the particular apparel to determine the chest size, waist size, and hip size of the specific clothing.  
 Remember that the size of your casual everyday clothes is not comparable to ethnic wear. 
 
 
 Selecting The Colour
+
 It is important to select a color that goes with your skin tone and accentuates the jewellery you will be wearing. If you are a guest at a wedding, avoid wearing red, crimson, and maroon, as these are the bride’s colors in India. 
 Chic colors in vogue this wedding season are pastels, off-whites, and yellow with heavy embroidery work. 
 
 
 Determine the Fabrics
+
 Lehenga choli comes in various fabrics, from net to silk and brocade. Choose a fabric highlighting your shape instead of hiding it in tandem with your body type. 
 While some fabrics are stretchable, allowing you to order a blouse as per your bust size, others make your curves more prominent. Read the product details carefully to earn about the texture and quality of the fabric. 
 
 
 Check the Return/ Exchange Policies
+
 When you buy designer lehenga choli online in the USA, read through the product's return policy on the site. This will help you change that product without any complications in case the outfit does not fit well or if there is a manufacturing defect. Aside from answering frequently asked questions, the return policy also includes information on shipping, handling, and any additional expenses for returning the product. 
 
 
